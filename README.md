@@ -20,6 +20,10 @@ below.
   - You can use any mixture of hard and soft cheese. We use 40% Grana Padano,
     60% mozzarella or gouda.
 
+## Indian
+
+- [Spiced carrot lentil soup](https://www.bbcgoodfood.com/recipes/spiced-carrot-lentil-soup)
+
 ## Bread
 
 - [Loaf Bread](https://www.instagram.com/stories/highlights/17876257354602131/)
